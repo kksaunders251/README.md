@@ -28,3 +28,5 @@ March 25th ♈
 - Sephora 🛒
 - NYT No Recipe-Recipe Cook Book🧑‍🍳
 - Reality TV junckie 📺 🫣
+- LOVEEEE A .5 PHOTO
+- DOGS
