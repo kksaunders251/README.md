@@ -39,5 +39,5 @@ March 25th ♈
 #### West Point Game
 ![West Point Game](WP.jpeg)
 #### First Time at the Selma Jubilee
-![CPCRS](CPCRS.jpg) 
+![Selma](CPCRS.JPG)
 
