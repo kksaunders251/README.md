@@ -6,7 +6,7 @@ Let me know if you need any other changes! 😊
 - I use she/her/hers pronouns
 - 3x Gen Philadelphian on both sides! GO BIRDS! (Still learning football)
 - I can get a little southern, I went to undergrad at THE BEST HBCU, Tuskegee University
-- I earned my Master's in  Historic Preservation from the University of Pennsylvania, where I enjoyed breaking traditional norms to save Black Philly Gems...check out my work with the Tanner House!
+- I earned my Master's in  Historic Preservation from the University of Pennsylvania, where I enjoyed breaking traditional norms to save Black Philly Gems...check out my work with the Tanner House! [https://savethetannerhouse.org/forlovetothriveseries ](https://www.inquirer.com/arts/tanner-house-community-outreach-report-20240910.html) 
 - I need my Mushroom Coffee Daily (Everyday Doze) 🍄
 - Excited to transition into tech!
   
