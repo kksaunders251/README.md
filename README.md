@@ -27,4 +27,4 @@ March 25th ♈
 - Art 🖌️
 - Sephora 🛒
 - NYT No Recipe-Rescipes🧑‍🍳
-- Reality TV junckie 📺
+- Reality TV junckie 📺 🫣
