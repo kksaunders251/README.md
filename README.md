@@ -13,7 +13,7 @@ I am at my best in the mornings! But I'll be available between 8 am and 7 pm
 ### Best Way to communicate 
 I prefer Google Chat over Email, but I love in-person communication best. 
 Feel Free to tap me, even if I have headphones on (I prefer to work with something in the background) 
-### How do I like to give feedback? :
+### How do I like to give feedback? 
 In person, but if it's easier to send you an email, I'm always taking notes that I can share
 ### How do I like to receive feedback? 
 In-person is best, but if you don't have any time, email/Google chat is best. 
