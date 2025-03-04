@@ -1,7 +1,7 @@
 # **Howdy, I'm Khayla Saunders** 🤠👩🏾‍💻  
 ## Welcome to my Git Crib! 
-Feel free to call me Khai! I love to have sidebar chit-chats to make connections, have a laugh, and work hard. Integrity is important to me. One of my favorite quotes is from the GOAT Lebron "I know we're out the playoff race, but if I'm on the court, I'm going to play how I play, and I play to win. So, I **never will cheat the game**..."
-## A few not so basic, basics
+Feel free to call me Khai! I love having sidebar chit-chats to make connections, laugh, and work hard. Integrity is essential to me. One of my favorite quotes is from the GOAT Lebron "I know we're out [of]  the playoff race, but if I'm on the court, I'm going to play how I play, and I play to win. So, I **never will cheat the game**..."
+## A few not so essential, basics
 - I use she/her/hers pronouns
 - 3x Gen Philadelphian! GO BIRDS! (Still learning football...BUT I frequent West Point games to support my little BIG cousin!)
 - I can get a little southern, I went to undergrad at THE BEST HBCU, Tuskegee University
@@ -9,9 +9,9 @@ Feel free to call me Khai! I love to have sidebar chit-chats to make connections
 - I need my Mushroom Coffee Daily (Everyday Doze) 🍄
   
 ### Work Routine
-I am at my best in the **mornings!** Ready to chit chat about work from 9-6pm
+I am at my best in the **mornings!** Ready to chit chat about work from 9-6 pm
 ### Best Way to communicate 
-- **Email**: For non-urgent but lengtheir questions because it helps me to process more efficiently and think through the problem better
+- **Email**: For non-urgent but longer questions because it helps me to process more efficiently and think through the problem better
 - **Google Chat:** Casual quick questions/coonvos
 - **In-person**: MY FAVORITE!
 >  **ALSO** Feel Free to tap me, even if I have headphones on (I prefer to work with something in the background) 
