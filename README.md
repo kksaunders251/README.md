@@ -11,7 +11,7 @@ Feel free to call me Khai! I love having sidebar chit-chats to make connections,
 ### Work Routine
 I am at my best in the **mornings!** Ready to chit chat about work from 9-6 pm
 ### Best Way to communicate 
-- **Email**: For non-urgent but longer questions because it helps me to process more efficiently and think through the problem better
+- **Email**: For non-urgent but more extended questions because it helps me to process more efficiently and think through the problem better
 - **Google Chat:** Casual quick questions/coonvos
 - **In-person**: MY FAVORITE!
 >  **ALSO** Feel Free to tap me, even if I have headphones on (I prefer to work with something in the background) 
@@ -39,4 +39,5 @@ March 25th ♈
 #### West Point Game
 ![West Point Game](WP.jpeg)
 #### First Time at the Selma Jubilee
+![Selma Jubilee](CPCRS.jpg)
 
