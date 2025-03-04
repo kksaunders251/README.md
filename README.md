@@ -24,6 +24,7 @@ Continuous growth in my faith, become a software engineer, go on one internation
 ### Birthday 
 March 25th ♈
 ### Favorite Topics
+- Family ❤️
 - Art 🖌️
 - Sephora 🩶
 - NYT No Recipe-Recipe Cook Book🧑‍🍳
@@ -35,7 +36,7 @@ March 25th ♈
 ![Eagles Fans](EAGLES.jpeg)
 #### Family Football Game
 ![Family Football Game](TU.jpeg)
-#### First Time at the Selma Jubilee
-![Selma Jubilee](Gump.jpeg)
 #### West Point Game
 ![West Point Game](WP.jpeg)
+#### First Time at the Selma Jubilee
+
