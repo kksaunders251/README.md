@@ -26,5 +26,5 @@ March 25th ♈
 ### Indulgences 
 - Art 🖌️
 - Sephora 🛒
-- NYT No Recipe-Rescipes🧑‍🍳
+- NYT No Recipe-Recipe Cook Book🧑‍🍳
 - Reality TV junckie 📺 🫣
