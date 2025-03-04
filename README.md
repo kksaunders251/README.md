@@ -1,10 +1,8 @@
 # **Howdy, I'm Khayla Saunders** 🤠👩🏾‍💻  
 This page is for my colleagues to get to know me, my work schedule, and my life!
-
-Let me know if you need any other changes! 😊
 ## About Me
 - I use she/her/hers pronouns
-- 3x Gen Philadelphian on both sides! GO BIRDS! (Still learning football...BUT I frequent West Point games to support my little BIG cousin!)
+- 3x Gen Philadelphian! GO BIRDS! (Still learning football...BUT I frequent West Point games to support my little BIG cousin!)
 - I can get a little southern, I went to undergrad at THE BEST HBCU, Tuskegee University
 - I earned my Master's in  Historic Preservation from the University of Pennsylvania, where I enjoyed breaking traditional norms to save Black Philly Gems...check out my work with the Tanner House! https://www.inquirer.com/arts/tanner-house-community-outreach-report-20240910.html 
 - I need my Mushroom Coffee Daily (Everyday Doze) 🍄
