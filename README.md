@@ -1,12 +1,14 @@
-# **Howdy, I'm Khayla Saunders** 😄 👩‍💻 
-This page is for my colleagues to get to know me, my work schedule, and  my life!
+# **Howdy, I'm Khayla Saunders** 🤠👩🏾‍💻  
+This page is for my colleagues to get to know me, my work schedule, and my life!
+
+Let me know if you need any other changes! 😊
 ## About Me
 - I use she/her/hers pronouns
-- Born and raised in Philly (GO EAGLES!!)
+- 3x Gen Philadelphian on both sides! GO BIRDS! (Still learning football)
 - I can get a little southern, I went to undergrad at THE BEST HBCU, Tuskegee University
-- I earned my Master's in  Historic Preservation from the University of Pennsylvania
+- I earned my Master's in  Historic Preservation from the University of Pennsylvania, where I enjoyed breaking traditional norms to save Black Philly Gems...check out my work with the Tanner House!
+- I need my Mushroom Coffee Daily (Everyday Doze) 🍄
 - Excited to transition into tech!
-- Believer in teamwork makes the dream work
   
 ### Work Hours 
 I am at my best in the mornings! But I'll be available between 8 am and 7 pm 
